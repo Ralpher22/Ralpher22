@@ -7,4 +7,6 @@ but I sure enjoy making it happen.
 - 💬 Ask me about Computers
 - ⚡ Fun fact: Am just Human
 - 📫 contact:rickyralph116@gmail.com
+-
+
 
