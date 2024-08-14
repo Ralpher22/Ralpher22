@@ -6,7 +6,7 @@ but I sure enjoy making it happen.
 - 🤔 Interested in Distributed and linux systems
 - 💬 Ask me about Computers
 - ⚡ Fun fact: Am just Human
-- 📫 contact:rickyralph116@gmail.com
+- 📫 contact:jambongralpher.com
 
 
 
